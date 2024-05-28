@@ -136,4 +136,4 @@ Following inferences can be drawn from the dashboard;
   - Streamlining processes for efficiency.
 
 #### Do you have  any questions ? Feel free to ask anything….
-### Connect with me on [linkedin](https://www.linkedin.com/in/ankit-kumar-yadav3027)
+### Connect with me on [linkedin.](https://www.linkedin.com/in/ankit-kumar-yadav3027)
